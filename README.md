@@ -1,1 +1,1 @@
-# GAMINI
+# GAMING
